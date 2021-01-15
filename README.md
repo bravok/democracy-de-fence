@@ -1,4 +1,4 @@
-# Democracy De Fence is a Peaceful protest of violent attacks on democracy.
+# Democracy DeFence is a Peaceful protest of violent attacks on democracy.
 
 This protest format serves the following purposes
 
@@ -18,7 +18,7 @@ This protest format serves the following purposes
 
 8) As sections are overrun they create obstructions on the ground to slow advancing mobs
 
-9) Rows of defence get stronger as you retreat - more people defending each subsequent row, as the retreating line doubles up on the next line
+9) Rows of Defence get stronger as you retreat - more people defending each subsequent row, as the retreating line doubles up on the next line
 
 10) Create a very strong barrier from average citizens
 
@@ -28,7 +28,7 @@ This protest format serves the following purposes
 
 2) Create a section about two to three people wide
 
-3) Attach a vertical piece of wood behind it with a hinge. This will be your prop to help you hold the fence up. A Narrow DeFence may need a board across the bottom of the prop to make it stable
+3) Attach a vertical piece of wood behind it with a hinge. This will be your prop to help you hold the fence up. A Narrow Defence may need a board across the bottom of the prop to make it stable
 
 4) Paint it and write your protest message on it
 
@@ -64,9 +64,9 @@ Don't antagonize - let the counter-democracy group do all the work
 
 ## Reuse
 
-A twin bed foundation broken into top and bottom make good DeFences
+Part of a twin bed foundation broken into top and bottom makes a good Defence
 
-Pallet wood is also good for making a DeFence
+Pallet wood is also good for making a Defence
 
 
 
